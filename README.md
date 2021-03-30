@@ -1,2 +1,2 @@
 # LHD-share-Day-2
-Projects for day 2
+Tips for reducing consumption of plastic in your life
